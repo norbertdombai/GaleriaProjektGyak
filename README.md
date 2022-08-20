@@ -1,1 +1,1 @@
-# GaleriaProjektGyak
+Dombai Norbert
